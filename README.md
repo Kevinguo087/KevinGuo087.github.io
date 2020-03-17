@@ -8,7 +8,4 @@
 
 请勿将本模板进行二次贩卖等违法行为，否则后果自负！！！
 
-还有就是……别把我的收款二维码偷走哦🤪
 
-# 捐赠(Donate)
-![Donate](WeChatReward-Donate.jpg)
